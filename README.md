@@ -226,7 +226,7 @@ SmartPlate tracks real-time metrics:
 
 **Varshini**
 
-*Meenashi**
+**Meenakshi**
 
 📧 [smartplate.foodredistribution@gmail.com](mailto:smartplate.foodredistribution@gmail.com)
 
